@@ -75,3 +75,7 @@
 
 - [Worklead - New clients and remote jobs in your inbox, every day](https://worklead.co/?ref=codecareer.io)
 - [Startup Jobs - Browse all startup jobs in one place](https://startup.jobs/?ref=codecareer.io)
+
+## Employee Satisfaction
+
+- [Employee Onboarding Guide](https://coda.io/@jessica-powell/employee-onboarding-guide-by-jessica-powell?utm_source=linkedin&amp%3Butm_medium=linkedinfeed&amp%3Butm_campaign=yotm&amp%3Bcampaign_id=607174446&amp%3Bad_group_id=146291416&amp%3Bad_id=98526476)
